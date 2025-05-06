@@ -1,0 +1,1 @@
+# eMMC5.1xieyiguifan-JESD84-B51fenxiang
